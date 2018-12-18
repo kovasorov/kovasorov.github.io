@@ -1,1 +1,0 @@
-# kovasorov.github.io
